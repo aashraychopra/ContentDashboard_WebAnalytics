@@ -9,3 +9,4 @@ In today’s digital world, 𝗱𝗮𝘁𝗮-𝗱𝗿𝗶𝘃𝗲𝗻 𝗰𝗼�
 ✅ 𝗟𝗲𝘃𝗲𝗿𝗮𝗴𝗲 𝗥𝗲𝗴𝗶𝗼𝗻𝗮𝗹 𝗧𝗿𝗲𝗻𝗱𝘀 – Customize campaigns based on 𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻-𝗯𝗮𝘀𝗲𝗱 𝗲𝗻𝗴𝗮𝗴𝗲𝗺𝗲𝗻𝘁 𝗶𝗻𝘀𝗶𝗴𝗵𝘁𝘀.
 ✅ 𝗗𝗶𝘀𝗰𝗼𝘃𝗲𝗿 𝗛𝗶𝗴𝗵-𝗜𝗺𝗽𝗮𝗰𝘁 𝗛𝗮𝘀𝗵𝘁𝗮𝗴𝘀 – Identify hashtags that drive the highest virality and refine hashtag strategies.
 
+Link: https://public.tableau.com/app/profile/aashray.chopra/viz/SocialMediaTop5000ViralContentDashboard/Dashboard
